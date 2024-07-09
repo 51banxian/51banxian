@@ -1,10 +1,10 @@
 :star: :point_right: 【星空体育官网】:star: :point_right:
 ==
-:star: :point_right: 【官方入口】 ：http://aa369.cc
+:star: :point_right: 【官方入口】 ：aa369.cc
 ------
-:star: :point_right: 【网页版地址】 ：http://aa369.cc
+:star: :point_right: 【网页版地址】 ：aa369.cc
 ------
-:star: :point_right: 【APP下载地址】 ：http://pang2024fafa.com
+:star: :point_right: 【APP下载地址】 ：pang2024fafa.com
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
