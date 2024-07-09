@@ -1,8 +1,8 @@
 :star: :point_right: 【星空体育官网】:star: :point_right:
 ==
-:star: :point_right: 【官方入口】 ：http://www.aa369.cc
+:star: :point_right: 【官方入口】 ：http://aa369.cc
 ------
-:star: :point_right: 【网页版地址】 ：http://www.aa369.cc
+:star: :point_right: 【网页版地址】 ：http://aa369.cc
 ------
 :star: :point_right: 【APP下载地址】 ：http://pang2024fafa.com
 ------
